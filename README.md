@@ -17,3 +17,4 @@ To enter:
 • 4,000 [cooked Feola](28k HP)
 • 750 [Cooked Quaffer](30k HP)
 Good luck! 🍀
+End: 9th sep 2024
