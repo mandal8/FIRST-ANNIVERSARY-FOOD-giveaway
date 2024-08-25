@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/93052ac0-43ba-45d6-9746-ece0e751c790)# FIRST-ANNIVERSARY-FOOD-giveaway
+![image](https://github.com/user-attachments/assets/93052ac0-43ba-45d6-9746-ece0e751c790)
+# FIRST-ANNIVERSARY-FOOD-giveaway
 information about my 1st anniversary gift(food) giveaway 
 
 Happy Anniversary! 🎉
